@@ -10,6 +10,6 @@ Meu nome é Débora Karolayne
 
 00001113863341sp@al.educacao.sp.gov.br
 
-@debora_xp
+@deboraxp_
 
 ![](https://media.tenor.com/HoXg2JXLbisAAAAi/capple.gif)
